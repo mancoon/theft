@@ -17,3 +17,5 @@ Jacob came by Adam’s room to deliver some money (I was already present). Adam 
 As Jacob turned away to disengage from the situation, Adam grabbed his face from behind, pressed his right index and middle fingers into Jacob’s right eye, and yelled, “I could gouge your eye out.” I managed to remove Adam’s hands from Jacob’s face. Adam then proceeded to push Jacob into the pool.
 
 Throughout the entire incident, Adam was accusing Jacob of being responsible for the Notional theft.
+
+Adam also claimed that he had put trackers on all of Jacob's devices 
